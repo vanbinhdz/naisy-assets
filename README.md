@@ -1,0 +1,1 @@
+# naisy-assets
